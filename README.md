@@ -166,4 +166,4 @@ While results vary based on age, severity, and health conditions, the majority o
 
 Stem cell therapy offers a powerful alternative to surgery for many people struggling with knee pain. By targeting the root cause of inflammation and tissue damage, it provides long-term relief, faster recovery, and a more natural healing process. If you're tired of pain holding you back, this may be the solution you’ve been looking for.
 
-Ready to explore your options? Learn more or schedule a consultation at:
+Ready to explore your options? Learn more or schedule a consultation with us!
