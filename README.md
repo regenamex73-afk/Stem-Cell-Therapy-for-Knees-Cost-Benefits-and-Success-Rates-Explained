@@ -116,17 +116,17 @@ Stem cell therapy isn’t just a trend—it’s backed by promising research and
 
 Most studies show:
 
-60–90% improvement in pain and function
+- 60–90% improvement in pain and function
 
-Better outcomes in early-to-moderate arthritis
+- Better outcomes in early-to-moderate arthritis
 
-Strong long-term results when combined with lifestyle changes
+- Strong long-term results when combined with lifestyle changes
 
 Patients often see:
 
-Noticeable improvement after 4–6 weeks
+- Noticeable improvement after 4–6 weeks
 
-Continued gains for 6–12 months
+- Continued gains for 6–12 months
 
 Long-lasting benefit for several years
 
@@ -134,33 +134,33 @@ While results vary based on age, severity, and health conditions, the majority o
 
 # Who Is a Good Candidate?
 
-Stem cell therapy may be a strong option if you:
+- Stem cell therapy may be a strong option if you:
 
-Have mild to moderate arthritis
+- Have mild to moderate arthritis
 
-Want to avoid or delay surgery
+- Want to avoid or delay surgery
 
-Experience knee pain during daily activities
+- Experience knee pain during daily activities
 
-Have cartilage damage or a meniscus injury
+- Have cartilage damage or a meniscus injury
 
-Prefer a natural, minimally invasive approach
+- Prefer a natural, minimally invasive approach
 
-It’s less effective for people with severe bone-on-bone arthritis, though some still benefit depending on their goals.
+- It’s less effective for people with severe bone-on-bone arthritis, though some still benefit depending on their goals.
 
 # Expert Tips Before Choosing a Clinic
 
-To get the best results, look for clinics that:
+- To get the best results, look for clinics that:
 
-Use live stem cells, not amniotic or donor tissue
+- Use live stem cells, not amniotic or donor tissue
 
-Provide ultrasound-guided injections
+- Provide ultrasound-guided injections
 
-Offer patient-specific treatment plans
+- Offer patient-specific treatment plans
 
-Have experience treating orthopedic conditions
+- Have experience treating orthopedic conditions
 
-Reading reviews and scheduling a consultation can help you understand your options clearly.
+- Reading reviews and scheduling a consultation can help you understand your options clearly.
 
 # Conclusion: A Smarter, Less Invasive Option for Knee Pain
 
